@@ -2,11 +2,17 @@
 
 ![Pavelixo](https://user-images.githubusercontent.com/76480021/193456106-1e6d2cbc-a3fe-4a75-ae28-3a330dcccb34.png)
 
+<h1 align="center"> Projetos  </h1>
+
+<h1 align="center">  </h1>
+
 ![Ativo 2-8](https://user-images.githubusercontent.com/76480021/193456219-c3c7429d-948e-4d67-87e2-fb942f79dad9.png)
 
 
 - <a href="https://www.instagram.com/pavelsempulmao/">Instagram</a>
 - <a href="https://www.youtube.com/channel/UCfQb9oXmUUyxQsB4a2O0hXg">Youtube</a>
+- <a href="https://www.roblox.com/users/3083916506/profile">Roblox</a>
+- <a href="https://steamcommunity.com/id/pavelixo/">Steam</a>
+- <a href="https://twitter.com/Pavelixo">Twitter</a>
 
-
-
+<h1 align="center">  </h1>
